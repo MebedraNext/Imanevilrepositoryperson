@@ -1,7 +1,3 @@
-# Imanevilrepositoryperson
+# Ben Sucks
 
-# trochu zlej text
-
-# zlej text
-
-# hodne tley text
+# - Jirka
